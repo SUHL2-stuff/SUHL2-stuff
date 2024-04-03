@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @SUHL2-stuff
+- 👀 I’m interested in finding good projects on GitHub and using them! If you make viruses get away from me.
+- 🌱 I’m currently trying to learn lua
+- 📫 How to reach me: suhl2 on Discord
+- 😄 Pronouns: He/Him
+- ⚡ Fun Fact: I always experiment on stuff about technology and online activites
